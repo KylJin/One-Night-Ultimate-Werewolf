@@ -1,1 +1,1 @@
-# One-Night-Ultimate-Werewolf
+# One Night Ultimate Werewolf
